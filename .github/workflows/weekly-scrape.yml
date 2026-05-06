@@ -30,5 +30,6 @@ jobs:
       - name: Commit and push changes
         uses: stefanzwi/git-auto-commit-action@v5
         with:
+          github_token: ${{ secrets.GITHUB_TOKEN }}
           commit_message: 'chore: weekly scrape update'
           file_pattern: 'knowledge/raw/*.md'
