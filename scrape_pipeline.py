@@ -15,6 +15,7 @@ QUERIES = [
 
 RESULTS_PER_QUERY = 3
 OUT_DIR = "knowledge/raw"
+os.makedirs(OUT_DIR, exist_ok=True)
 
 
 def slugify(text):
