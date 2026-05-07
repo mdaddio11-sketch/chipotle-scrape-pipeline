@@ -30,7 +30,7 @@ jobs:
         run: python scrape_pipeline.py
 
       - name: Commit and push changes
-        uses: stefanzwier/git-auto-commit-action@v4
+        uses: stefanzwicher/git-auto-commit-action@v4
         with:
           commit_message: 'chore: weekly scrape update'
           file_pattern: 'knowledge/raw/*.md'
