@@ -1,15 +1,5 @@
 # Source: https://ir.chipotle.com/2025-02-04-CHIPOTLE-ANNOUNCES-FOURTH-QUARTER-AND-FULL-YEAR-2024-RESULTS
 
-### Your Privacy Preferences
-
-If you would like to submit a Data Subject Request, please click here: [Data Subject Request Form](https://www.chipotle.com/privacy-request)
-
-We use cookies to enhance your website and app experience, improve functionality and support our marketing efforts. You can manage your cookie preferences by clicking “Do Not Sell or Share My Personal Information / Opt Out.” If you wish to opt out of Chipotle’s sharing your personal information directly with third parties for the purpose of targeted advertising, please click on “Your Privacy Choices” link in the footer of our website and complete the US Consumer Data Request Form found under the Data Subject Rights tab. To learn more, please review our [Cookie Policy](https://www.chipotle.com/cookie-policy) and our visit our recently updated [Privacy Policy,](https://www.chipotle.com/privacy-policy) [including California Privacy Rights](https://www.chipotle.com/privacy-policy). By continuing to access or use our website, you agree to our [Terms of Use](https://www.chipotle.com/terms-of-use) including the arbitration and class action waiver.
-
-Do Not Sell or Share My Personal Information / Opt OutAccept AllPrivacy Preferences
-
-[Back to News Releases](https://ir.chipotle.com/news-releases)
-
 CHIPOTLE ANNOUNCES FOURTH QUARTER AND FULL YEAR 2024 RESULTS
 
 - [print](https://ir.chipotle.com/2025-02-04-CHIPOTLE-ANNOUNCES-FOURTH-QUARTER-AND-FULL-YEAR-2024-RESULTS#print "print")
@@ -481,9 +471,41 @@ Sorry to see you go. Your request to unsubscribe from all Chipotle promotional e
 
 If you change your mind and wish to re-subscribe to receive future updates and newsletters from Chipotle, simply enter your email address in the form below.
 
+Just a moment...
+
+# ir.chipotle.com
+
+## Performing security verification
+
+This website uses a security service to protect against malicious bots. This page is displayed while the website verifies you are not a bot.
+
+Checking your Browser…
+
+Verifying...
+
+Stuck? [Troubleshoot](https://challenges.cloudflare.com/cdn-cgi/challenge-platform/h/g/turnstile/f/ov2/av0/rch/4ftu6/0x4AAAAAAADnPIDROrmt1Wwj/light/fbE/new/normal?lang=auto#refresh)
+
+Success!
+
+Verification failed
+
+[Troubleshoot](https://challenges.cloudflare.com/cdn-cgi/challenge-platform/h/g/turnstile/f/ov2/av0/rch/4ftu6/0x4AAAAAAADnPIDROrmt1Wwj/light/fbE/new/normal?lang=auto#refresh)
+
+Verification expired
+
+[Refresh](https://challenges.cloudflare.com/cdn-cgi/challenge-platform/h/g/turnstile/f/ov2/av0/rch/4ftu6/0x4AAAAAAADnPIDROrmt1Wwj/light/fbE/new/normal?lang=auto#refresh)
+
+Verification expired
+
+[Refresh](https://challenges.cloudflare.com/cdn-cgi/challenge-platform/h/g/turnstile/f/ov2/av0/rch/4ftu6/0x4AAAAAAADnPIDROrmt1Wwj/light/fbE/new/normal?lang=auto#refresh)
+
+[Troubleshoot](https://challenges.cloudflare.com/cdn-cgi/challenge-platform/h/g/turnstile/f/ov2/av0/rch/4ftu6/0x4AAAAAAADnPIDROrmt1Wwj/light/fbE/new/normal?lang=auto#refresh)
+
+[Privacy](https://www.cloudflare.com/privacypolicy/) • [Help](https://challenges.cloudflare.com/cdn-cgi/challenge-platform/help)
+
+## Verification successful. Waiting for ir.chipotle.com to respond
+
 Cookies are used to support and manage your interactions with our website and process your order. By using our site, you agree to our use of cookies. Learn more in our Privacy Policy.
 
 
 OKAYPRIVACY POLICY
-
-Twitter Widget Iframe
