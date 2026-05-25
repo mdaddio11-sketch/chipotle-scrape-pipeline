@@ -1,5 +1,7 @@
 # Source: https://ir.chipotle.com/2025-02-04-CHIPOTLE-ANNOUNCES-FOURTH-QUARTER-AND-FULL-YEAR-2024-RESULTS
 
+[Back to News Releases](https://ir.chipotle.com/news-releases)
+
 CHIPOTLE ANNOUNCES FOURTH QUARTER AND FULL YEAR 2024 RESULTS
 
 - [print](https://ir.chipotle.com/2025-02-04-CHIPOTLE-ANNOUNCES-FOURTH-QUARTER-AND-FULL-YEAR-2024-RESULTS#print "print")
@@ -475,3 +477,5 @@ Cookies are used to support and manage your interactions with our website and pr
 
 
 OKAYPRIVACY POLICY
+
+Twitter Widget Iframe
