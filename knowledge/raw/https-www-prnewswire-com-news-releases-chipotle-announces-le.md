@@ -40,15 +40,15 @@ Request a Demo](https://www.prnewswire.com/amplify-platform/?site_refer=press-re
 
 ## Also from this source
 
+[![CHIPOTLE'S "SUMMER OF EXTRAS" RETURNS, WITH STREAK-BASED REWARDS AND LOCAL RANKINGS TO GAMIFY THE REWARDS EXPERIENCE](https://mmx.prnewswire.com/media/MS1850047/Chipotle_Summer_of_Extras.jpg?id=OA2643175&p=thumbnail)](https://www.prnewswire.com/news-releases/chipotles-summer-of-extras-returns-with-streak-based-rewards-and-local-rankings-to-gamify-the-rewards-experience-302784230.html)
+
+[**CHIPOTLE'S "SUMMER OF EXTRAS" RETURNS, WITH STREAK-BASED REWARDS AND LOCAL RANKINGS TO GAMIFY THE REWARDS EXPERIENCE** \\
+Chipotle Mexican Grill (NYSE: CMG) announced today that it is bringing back "Summer of Extras," where members can earn free entrees through...](https://www.prnewswire.com/news-releases/chipotles-summer-of-extras-returns-with-streak-based-rewards-and-local-rankings-to-gamify-the-rewards-experience-302784230.html "")
+
 [![CHIPOTLE ANNOUNCES FIRST QUARTER 2026 RESULTS](https://mma.prnewswire.com/media/624816/Chipotle_Mexican_Grill_Logo.jpg?w=300)](https://www.prnewswire.com/news-releases/chipotle-announces-first-quarter-2026-results-302757940.html)
 
 [**CHIPOTLE ANNOUNCES FIRST QUARTER 2026 RESULTS** \\
 Chipotle Mexican Grill, Inc. (NYSE: CMG) today reported financial results for its first quarter ended March 31, 2026. First quarter highlights, year...](https://www.prnewswire.com/news-releases/chipotle-announces-first-quarter-2026-results-302757940.html "")
-
-[![CHIPOTLE TO GIVE AWAY UP TO $2 MILLION IN FREE BURRITOS TO TEACHERS AND HEALTHCARE WORKERS](https://mma.prnewswire.com/media/2968503/Chipotle_Teacher_Healthcare_Giftcards.jpg?w=300)](https://www.prnewswire.com/news-releases/chipotle-to-give-away-up-to-2-million-in-free-burritos-to-teachers-and-healthcare-workers-302756795.html)
-
-[**CHIPOTLE TO GIVE AWAY UP TO $2 MILLION IN FREE BURRITOS TO TEACHERS AND HEALTHCARE WORKERS** \\
-Chipotle Mexican Grill (NYSE: CMG) announced today that it will award up to 200,000 teachers and healthcare workers with free entrée e-gift cards,...](https://www.prnewswire.com/news-releases/chipotle-to-give-away-up-to-2-million-in-free-burritos-to-teachers-and-healthcare-workers-302756795.html "")
 
 [More Releases From This Source](https://www.prnewswire.com/news/chipotle-mexican-grill/)
 
