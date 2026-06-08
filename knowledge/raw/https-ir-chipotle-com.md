@@ -8,6 +8,12 @@ RECENT NEWS
 
 [Alerts](https://ir.chipotle.com/alerts)
 
+Jun 2, 2026
+
+[CHIPOTLE MEXICAN GRILL TO ANNOUNCE SECOND QUARTER 2026 RESULTS ON JULY 29, 2026](https://ir.chipotle.com/2026-06-02-CHIPOTLE-MEXICAN-GRILL-TO-ANNOUNCE-SECOND-QUARTER-2026-RESULTS-ON-JULY-29,-2026)
+
+Chipotle Mexican Grill (NYSE: CMG) will host a conference call on Wednesday, July 29, 2026, at 4:30 p.m. ET to discuss second quarter 2026 financial results and provide a business update for the...
+
 Apr 29, 2026
 
 [CHIPOTLE ANNOUNCES FIRST QUARTER 2026 RESULTS](https://ir.chipotle.com/2026-04-29-CHIPOTLE-ANNOUNCES-FIRST-QUARTER-2026-RESULTS)
@@ -20,19 +26,13 @@ Apr 27, 2026
 
 Appoints Arlie Sisson to newly formed Chief Digital Officer role to accelerate innovation efforts tied to Recipe for Growth strategy NEWPORT BEACH, Calif., April 27, 2026 /PRNewswire/ -- Chipotle...
 
-Mar 17, 2026
-
-[CHIPOTLE MEXICAN GRILL TO ANNOUNCE FIRST QUARTER 2026 RESULTS ON APRIL 29, 2026](https://ir.chipotle.com/2026-03-17-CHIPOTLE-MEXICAN-GRILL-TO-ANNOUNCE-FIRST-QUARTER-2026-RESULTS-ON-APRIL-29,-2026)
-
-Chipotle Mexican Grill (NYSE: CMG) will host a conference call on Wednesday, April 29, 2026, at 4:30 p.m. ET to discuss first quarter 2026 financial results and provide a business update for the...
-
 [Read More](https://ir.chipotle.com/Financial-Releases)
 
 NYSECMG
 
-$32.89
+$29.34
 
-$0.09
+$1.16
 
 Currency in USD.
 
@@ -56,11 +56,11 @@ If you are a Chipotle shareholder and would like to receive your proxy materials
 
 Events
 
-**Chipotle Mexican Grill First Quarter 2026 Results**
+**Chipotle Mexican Grill Second Quarter 2026 Results**
 
-**Wednesday, April 29, 2026 at 4:30 p.m. (EDT)**
+**Wednesday, July 29, 2026 at 4:30 p.m. (EDT)**
 
-[Listen to the Webcast](https://app.webinar.net/Kv5605dNA3d)
+[Listen to the Webcast](https://app.webinar.net/1xylDGAwMKP)
 
 [CONTACT US](https://ir.chipotle.com/contact-us)
 

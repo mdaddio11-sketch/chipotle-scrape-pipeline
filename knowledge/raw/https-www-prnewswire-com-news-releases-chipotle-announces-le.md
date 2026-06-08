@@ -40,15 +40,15 @@ Request a Demo](https://www.prnewswire.com/amplify-platform/?site_refer=press-re
 
 ## Also from this source
 
-[![CHIPOTLE'S "SUMMER OF EXTRAS" RETURNS, WITH STREAK-BASED REWARDS AND LOCAL RANKINGS TO GAMIFY THE REWARDS EXPERIENCE](https://mmx.prnewswire.com/media/MS1850047/Chipotle_Summer_of_Extras.jpg?id=OA2643175&p=thumbnail)](https://www.prnewswire.com/news-releases/chipotles-summer-of-extras-returns-with-streak-based-rewards-and-local-rankings-to-gamify-the-rewards-experience-302784230.html)
+[![53 YEARS. 53 REAL INGREDIENTS: CHIPOTLE TO GIVE AWAY 53,000 FREE BURRITOS FOR THE MEN'S PROFESSIONAL BASKETBALL CHAMPIONSHIP SERIES](https://mmx.prnewswire.com/media/MS1853469/53_Years-53_Real_Ingredients.jpg?id=OA2644601&p=thumbnail)](https://www.prnewswire.com/news-releases/53-years-53-real-ingredients-chipotle-to-give-away-53-000-free-burritos-for-the-mens-professional-basketball-championship-series-302789661.html)
 
-[**CHIPOTLE'S "SUMMER OF EXTRAS" RETURNS, WITH STREAK-BASED REWARDS AND LOCAL RANKINGS TO GAMIFY THE REWARDS EXPERIENCE** \\
-Chipotle Mexican Grill (NYSE: CMG) announced today that it is bringing back "Summer of Extras," where members can earn free entrees through...](https://www.prnewswire.com/news-releases/chipotles-summer-of-extras-returns-with-streak-based-rewards-and-local-rankings-to-gamify-the-rewards-experience-302784230.html "")
+[**53 YEARS. 53 REAL INGREDIENTS: CHIPOTLE TO GIVE AWAY 53,000 FREE BURRITOS FOR THE MEN'S PROFESSIONAL BASKETBALL CHAMPIONSHIP SERIES** \\
+Chipotle Mexican Grill (NYSE: CMG) today announced a new campaign, "53 Years. 53 Real Ingredients," tied to New York and San Antonio's championship...](https://www.prnewswire.com/news-releases/53-years-53-real-ingredients-chipotle-to-give-away-53-000-free-burritos-for-the-mens-professional-basketball-championship-series-302789661.html "")
 
-[![CHIPOTLE ANNOUNCES FIRST QUARTER 2026 RESULTS](https://mma.prnewswire.com/media/624816/Chipotle_Mexican_Grill_Logo.jpg?w=300)](https://www.prnewswire.com/news-releases/chipotle-announces-first-quarter-2026-results-302757940.html)
+[![CHIPOTLE MEXICAN GRILL TO ANNOUNCE SECOND QUARTER 2026 RESULTS ON JULY 29, 2026](https://mmx.prnewswire.com/media/MS800164/cmg-logo-1500.jpg?id=OA2643726&p=thumbnail)](https://www.prnewswire.com/news-releases/chipotle-mexican-grill-to-announce-second-quarter-2026-results-on-july-29-2026-302788544.html)
 
-[**CHIPOTLE ANNOUNCES FIRST QUARTER 2026 RESULTS** \\
-Chipotle Mexican Grill, Inc. (NYSE: CMG) today reported financial results for its first quarter ended March 31, 2026. First quarter highlights, year...](https://www.prnewswire.com/news-releases/chipotle-announces-first-quarter-2026-results-302757940.html "")
+[**CHIPOTLE MEXICAN GRILL TO ANNOUNCE SECOND QUARTER 2026 RESULTS ON JULY 29, 2026** \\
+Chipotle Mexican Grill (NYSE: CMG) will host a conference call on Wednesday, July 29, 2026, at 4:30 p.m. ET to discuss second quarter 2026 financial...](https://www.prnewswire.com/news-releases/chipotle-mexican-grill-to-announce-second-quarter-2026-results-on-july-29-2026-302788544.html "")
 
 [More Releases From This Source](https://www.prnewswire.com/news/chipotle-mexican-grill/)
 
