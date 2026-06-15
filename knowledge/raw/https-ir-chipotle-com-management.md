@@ -34,7 +34,7 @@ Mr. Rymer has a Bachelor of Business Administration degree in finance from the U
 
 |     |
 | --- |
-| ![](https://ir.chipotle.com/image/HeadshotsOnWood_Management_CurtGarner2-320x320p.jpg) |
+| ![](https://ir.chipotle.com/image/HeadshotsOnWood_Management_CurtGarner320x320.jpg) |
 
 [Curt Garner](https://ir.chipotle.com/undefined)
 
@@ -45,6 +45,20 @@ President, Chief Strategy and Technology Officer
 Prior to Chipotle, Mr. Garner worked at Starbucks Corporation for 17 years, most recently serving as Executive Vice President and Chief Technology Officer. He led the brand’s global technology and engineering services and was responsible for creating and building the Starbucks app, loyalty program, website and mobile payment. Before that, Mr. Garner was responsible for leading the development and deployment of technology for Wendy’s international division as well as the technology that supported Tim Hortons initial expansion into the U.S. marketplace.
 
 Mr. Garner has a Bachelor of Arts degree in economics from The Ohio State University.
+
+|     |
+| --- |
+| ![](https://ir.chipotle.com/image/HeadshotsOnWood_Management_FernandoMachado320x320.jpg) |
+
+[Fernando Machado](https://ir.chipotle.com/undefined)
+
+Chief Brand Officer
+
+**Fernando Machado** is the Chief Brand Officer for Chipotle Mexican Grill. He is responsible for leading the company's global marketing strategy, brand positioning, and customer engagement efforts. Mr. Machado, Ad Age's 2020 CMO of the Year and a Forbes Top 3 Most Influential CMO globally, has a proven track record with numerous accolades for his breakthrough and innovative marketing campaigns.
+
+Mr. Machado spent over seven years as the Chief Marketing Officer at Restaurant Brands International (RBI) across brands like Burger King, Popeyes and Tim Hortons, where he received global recognition for his industry-leading campaigns. He also spent 18 years at Unilever in a series of executive leadership roles across its consumer brand portfolio. In addition, Mr. Machado was Chief Marketing Officer at Activision Blizzard, where he spearheaded marketing strategy across its portfolio of major gaming franchises.
+
+He currently serves as an Operating Partner at Garnett Station Partners, a private equity firm focused on franchise, multi-unit and services businesses and serves as a member of the board of directors of Braze, Inc. Machado holds a bachelor's degree in mechanical engineering from Universidade Estadual de Campinas (UNICAMP) and an MBA from INSEAD Business School.
 
 |     |
 | --- |
@@ -78,7 +92,7 @@ Ms. Eskenazi serves on the Board of Directors of a.k.a. Brands Holding Corp. She
 
 |     |
 | --- |
-| ![](https://ir.chipotle.com/image/HeadshotsOnWood_Management_JasonKidd-320x320p.jpg) |
+| ![](https://ir.chipotle.com/image/HeadshotsOnWood_Management_JasonKidd320x320.jpg) |
 
 [Jason Kidd](https://ir.chipotle.com/undefined)
 
