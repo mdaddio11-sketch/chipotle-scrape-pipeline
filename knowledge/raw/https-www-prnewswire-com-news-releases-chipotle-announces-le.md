@@ -40,12 +40,12 @@ Request a Demo](https://www.prnewswire.com/amplify-platform/?site_refer=press-re
 
 ## Also from this source
 
-[![CHIPOTLE KICKS OFF SUMMER'S BIGGEST TOURNAMENT WITH ITS FIRST-EVER MATCHDAY BOGO FOR FANS WEARING SOCCER JERSEYS](https://mmx.prnewswire.com/media/MS1858810/Soccer_BOGO_Lockup_PR_Asset.jpg?id=OA2690089&p=thumbnail)](https://www.prnewswire.com/news-releases/chipotle-kicks-off-summers-biggest-tournament-with-its-first-ever-matchday-bogo-for-fans-wearing-soccer-jerseys-302793463.html)
+[![CHIPOTLE KICKS OFF SUMMER'S BIGGEST TOURNAMENT WITH ITS FIRST-EVER MATCHDAY BOGO FOR FANS WEARING SOCCER JERSEYS](https://mmx.prnewswire.com/media/MS1858810/Soccer_BOGO_Lockup_PR_Asset.jpg?id=OA2690089&w=300)](https://www.prnewswire.com/news-releases/chipotle-kicks-off-summers-biggest-tournament-with-its-first-ever-matchday-bogo-for-fans-wearing-soccer-jerseys-302793463.html)
 
 [**CHIPOTLE KICKS OFF SUMMER'S BIGGEST TOURNAMENT WITH ITS FIRST-EVER MATCHDAY BOGO FOR FANS WEARING SOCCER JERSEYS** \\
 Chipotle Mexican Grill (NYSE: CMG) is bringing soccer fandom to its restaurants across the U.S., Canada and U.K. this summer with its first-ever...](https://www.prnewswire.com/news-releases/chipotle-kicks-off-summers-biggest-tournament-with-its-first-ever-matchday-bogo-for-fans-wearing-soccer-jerseys-302793463.html "")
 
-[![53 YEARS. 53 REAL INGREDIENTS: CHIPOTLE TO GIVE AWAY 53,000 FREE BURRITOS FOR THE MEN'S PROFESSIONAL BASKETBALL CHAMPIONSHIP SERIES](https://mmx.prnewswire.com/media/MS1853469/53_Years-53_Real_Ingredients.jpg?id=OA2644601&p=thumbnail)](https://www.prnewswire.com/news-releases/53-years-53-real-ingredients-chipotle-to-give-away-53-000-free-burritos-for-the-mens-professional-basketball-championship-series-302789661.html)
+[![53 YEARS. 53 REAL INGREDIENTS: CHIPOTLE TO GIVE AWAY 53,000 FREE BURRITOS FOR THE MEN'S PROFESSIONAL BASKETBALL CHAMPIONSHIP SERIES](https://mmx.prnewswire.com/media/MS1853469/53_Years-53_Real_Ingredients.jpg?id=OA2644601&w=300)](https://www.prnewswire.com/news-releases/53-years-53-real-ingredients-chipotle-to-give-away-53-000-free-burritos-for-the-mens-professional-basketball-championship-series-302789661.html)
 
 [**53 YEARS. 53 REAL INGREDIENTS: CHIPOTLE TO GIVE AWAY 53,000 FREE BURRITOS FOR THE MEN'S PROFESSIONAL BASKETBALL CHAMPIONSHIP SERIES** \\
 Chipotle Mexican Grill (NYSE: CMG) today announced a new campaign, "53 Years. 53 Real Ingredients," tied to New York and San Antonio's championship...](https://www.prnewswire.com/news-releases/53-years-53-real-ingredients-chipotle-to-give-away-53-000-free-burritos-for-the-mens-professional-basketball-championship-series-302789661.html "")
