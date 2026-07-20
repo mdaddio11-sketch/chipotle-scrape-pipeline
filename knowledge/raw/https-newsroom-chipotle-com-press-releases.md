@@ -1,42 +1,34 @@
 # Source: https://newsroom.chipotle.com/press-releases
 
-### Your Privacy Preferences
-
-If you would like to submit a Data Subject Request, please click here: [Data Subject Request Form](https://www.chipotle.com/privacy-request)
-
-We use cookies to enhance your website and app experience, improve functionality and support our marketing efforts. You can manage your cookie preferences by clicking “Do Not Sell or Share My Personal Information / Opt Out.” If you wish to opt out of Chipotle’s sharing your personal information directly with third parties for the purpose of targeted advertising, please click on “Your Privacy Choices” link in the footer of our website and complete the US Consumer Data Request Form found under the Data Subject Rights tab. To learn more, please review our [Cookie Policy](https://www.chipotle.com/cookie-policy) and our visit our recently updated [Privacy Policy,](https://www.chipotle.com/privacy-policy) [including California Privacy Rights](https://www.chipotle.com/privacy-policy). By continuing to access or use our website, you agree to our [Terms of Use](https://www.chipotle.com/terms-of-use) including the arbitration and class action waiver.
-
-Do Not Sell or Share My Personal Information / Opt OutAccept AllPrivacy Preferences
-
- [Skip to main content](https://newsroom.chipotle.com/press-releases#content)
+[Skip to main content](https://newsroom.chipotle.com/press-releases#content)
 
 # CHIPOTLE NEWS RELEASES
 
 News releases are archived for three years and are presented in chronological order. Please use the search bar below to search News Releases.
 
-June 2026
+July 2026
 
 | Sun | Mon | Tue | Wed | Thu | Fri | Sat |
 | --- | --- | --- | --- | --- | --- | --- |
-| 31 | 1 | 2 | 3 | 4 | 5 | 6 |
-| 7 | 8 | 9 | 10 | 11 | 12 | 13 |
-| 14 | 15 | 16 | 17 | 18 | 19 | 20 |
-| 21 | 22 | 23 | 24 | 25 | 26 | 27 |
 | 28 | 29 | 30 | 1 | 2 | 3 | 4 |
 | 5 | 6 | 7 | 8 | 9 | 10 | 11 |
+| 12 | 13 | 14 | 15 | 16 | 17 | 18 |
+| 19 | 20 | 21 | 22 | 23 | 24 | 25 |
+| 26 | 27 | 28 | 29 | 30 | 31 | 1 |
+| 2 | 3 | 4 | 5 | 6 | 7 | 8 |
 
 Cancel Go
 
-June 2026
+July 2026
 
 | Sun | Mon | Tue | Wed | Thu | Fri | Sat |
 | --- | --- | --- | --- | --- | --- | --- |
-| 31 | 1 | 2 | 3 | 4 | 5 | 6 |
-| 7 | 8 | 9 | 10 | 11 | 12 | 13 |
-| 14 | 15 | 16 | 17 | 18 | 19 | 20 |
-| 21 | 22 | 23 | 24 | 25 | 26 | 27 |
 | 28 | 29 | 30 | 1 | 2 | 3 | 4 |
 | 5 | 6 | 7 | 8 | 9 | 10 | 11 |
+| 12 | 13 | 14 | 15 | 16 | 17 | 18 |
+| 19 | 20 | 21 | 22 | 23 | 24 | 25 |
+| 26 | 27 | 28 | 29 | 30 | 31 | 1 |
+| 2 | 3 | 4 | 5 | 6 | 7 | 8 |
 
 Cancel Go
 
@@ -60,105 +52,115 @@ PhotosVideoAudioDocumentsEventsStandard
 
 [Basic Search](https://newsroom.chipotle.com/press-releases#)
 
-- [![](https://mmx.prnewswire.com/media/MS1858810/Soccer_BOGO_Lockup_PR_Asset.jpg?id=OA2690089&p=thumbnail)Opens in new window](https://newsroom.chipotle.com/2026-06-08-CHIPOTLE-KICKS-OFF-SUMMERS-BIGGEST-TOURNAMENT-WITH-ITS-FIRST-EVER-MATCHDAY-BOGO-FOR-FANS-WEARING-SOCCER-JERSEYS)
+- [![](https://mmx.prnewswire.com/media/MS1884012/1920x1080-Chipotle-Water-Break.jpg?id=OA2766770&p=thumbnail)Opens in new window](https://newsroom.chipotle.com/2026-07-16-CHIPOTLE-PUTS-A-NEW-TWIST-ON-SOCCERS-HYDRATION-BREAK-WITH-1-MILLION-IN-FREE-BURRITOS)
 
 
 
-Jun 8, 2026
+Jul 16, 2026
 
 
 
-[CHIPOTLE KICKS OFF SUMMER'S BIGGEST TOURNAMENT WITH ITS FIRST-EVER MATCHDAY BOGO FOR FANS WEARING SOCCER JERSEYSOpens in new window](https://newsroom.chipotle.com/2026-06-08-CHIPOTLE-KICKS-OFF-SUMMERS-BIGGEST-TOURNAMENT-WITH-ITS-FIRST-EVER-MATCHDAY-BOGO-FOR-FANS-WEARING-SOCCER-JERSEYS)
+[CHIPOTLE PUTS A NEW TWIST ON SOCCER'S HYDRATION BREAK WITH $1 MILLION IN FREE BURRITOSOpens in new window](https://newsroom.chipotle.com/2026-07-16-CHIPOTLE-PUTS-A-NEW-TWIST-ON-SOCCERS-HYDRATION-BREAK-WITH-1-MILLION-IN-FREE-BURRITOS)
 
 
 
 
 
-All fans who wear a soccer jersey to Chipotle restaurants in the U.S., Canada and U.K. on June 11, after 3 p.m. local time, can receive a buy-one-get-one free entrée1 Chipotle is releasing its...
+During the second official hydration break of this summer's international tournament final on July 19, Chipotle will launch its first-ever Chipotle "Water" Break, giving viewers a chance to unlock...
 
 
 
 
 
-  - [Photos2Opens in new window](https://newsroom.chipotle.com/2026-06-08-CHIPOTLE-KICKS-OFF-SUMMERS-BIGGEST-TOURNAMENT-WITH-ITS-FIRST-EVER-MATCHDAY-BOGO-FOR-FANS-WEARING-SOCCER-JERSEYS#assets_20295_122865-117)
+  - [Photos1Opens in new window](https://newsroom.chipotle.com/2026-07-16-CHIPOTLE-PUTS-A-NEW-TWIST-ON-SOCCERS-HYDRATION-BREAK-WITH-1-MILLION-IN-FREE-BURRITOS#assets_20295_122871-117)
 
-- [![](https://mmx.prnewswire.com/media/MS1853469/53_Years-53_Real_Ingredients.jpg?id=OA2644601&p=thumbnail)Opens in new window](https://newsroom.chipotle.com/2026-06-03-53-YEARS-53-REAL-INGREDIENTS-CHIPOTLE-TO-GIVE-AWAY-53,000-FREE-BURRITOS-FOR-THE-MENS-PROFESSIONAL-BASKETBALL-CHAMPIONSHIP-SERIES)
+- [![](https://mmx.prnewswire.com/media/MS1881435/Chipotle-Mexican-Grill.jpg?id=OA2759598&p=thumbnail)Opens in new window](https://newsroom.chipotle.com/2026-07-13-CHIPOTLE-ENTERS-MEXICO-WITH-FIRST-RESTAURANT-IN-NUEVO-LEON)
 
 
 
-Jun 3, 2026
+Jul 13, 2026
 
 
 
-[53 YEARS. 53 REAL INGREDIENTS: CHIPOTLE TO GIVE AWAY 53,000 FREE BURRITOS FOR THE MEN'S PROFESSIONAL BASKETBALL CHAMPIONSHIP SERIESOpens in new window](https://newsroom.chipotle.com/2026-06-03-53-YEARS-53-REAL-INGREDIENTS-CHIPOTLE-TO-GIVE-AWAY-53,000-FREE-BURRITOS-FOR-THE-MENS-PROFESSIONAL-BASKETBALL-CHAMPIONSHIP-SERIES)
+[CHIPOTLE ENTERS MEXICO WITH FIRST RESTAURANT IN NUEVO LEÓNOpens in new window](https://newsroom.chipotle.com/2026-07-13-CHIPOTLE-ENTERS-MEXICO-WITH-FIRST-RESTAURANT-IN-NUEVO-LEON)
 
 
 
 
 
-Chipotle is tying New York and San Antonio's 53-year connection to its real ingredients New York's Josh Hart and Mikal Bridges' go-to high protein orders are featured as limited-time digital menu...
+Chipotle and Alsea plan additional openings in Nuevo León this year and expansion into Mexico City in 2027 NEWPORT BEACH, Calif., July 13, 2026 /PRNewswire/ -- Chipotle Mexican Grill (NYSE: CMG)...
 
 
 
 
 
-  - [Photos1Opens in new window](https://newsroom.chipotle.com/2026-06-03-53-YEARS-53-REAL-INGREDIENTS-CHIPOTLE-TO-GIVE-AWAY-53,000-FREE-BURRITOS-FOR-THE-MENS-PROFESSIONAL-BASKETBALL-CHAMPIONSHIP-SERIES#assets_20295_122864-117)
+  - [Photos2Opens in new window](https://newsroom.chipotle.com/2026-07-13-CHIPOTLE-ENTERS-MEXICO-WITH-FIRST-RESTAURANT-IN-NUEVO-LEON#assets_20295_122869-117)
 
-- Jun 2, 2026
+- [![2K Golfer](https://newsroom.chipotle.com/file.php/181036/2K+Golfer.jpg?thumbnail=144)Opens in new window](https://newsroom.chipotle.com/2026-07-08-CHIPOTLE-BRINGS-REAL-WORLD-FOOD-REWARDS-TO-PGA-TOUR-2K25-IN-FIRST-OF-ITS-KIND-QUEST-INTEGRATION)
 
 
 
-[CHIPOTLE MEXICAN GRILL TO ANNOUNCE SECOND QUARTER 2026 RESULTS ON JULY 29, 2026Opens in new window](https://newsroom.chipotle.com/2026-06-02-CHIPOTLE-MEXICAN-GRILL-TO-ANNOUNCE-SECOND-QUARTER-2026-RESULTS-ON-JULY-29,-2026)
+Jul 8, 2026
 
 
 
+[CHIPOTLE BRINGS REAL-WORLD FOOD REWARDS TO PGA TOUR 2K25 IN FIRST-OF-ITS-KIND QUEST INTEGRATIONOpens in new window](https://newsroom.chipotle.com/2026-07-08-CHIPOTLE-BRINGS-REAL-WORLD-FOOD-REWARDS-TO-PGA-TOUR-2K25-IN-FIRST-OF-ITS-KIND-QUEST-INTEGRATION)
 
 
-Chipotle Mexican Grill (NYSE: CMG) will host a conference call on Wednesday, July 29, 2026, at 4:30 p.m. ET to discuss second quarter 2026 financial results and provide a business update for the...
 
-- [![](https://mmx.prnewswire.com/media/MS1850047/Chipotle_Summer_of_Extras.jpg?id=OA2643175&p=thumbnail)Opens in new window](https://newsroom.chipotle.com/2026-05-28-CHIPOTLES-SUMMER-OF-EXTRAS-RETURNS,-WITH-STREAK-BASED-REWARDS-AND-LOCAL-RANKINGS-TO-GAMIFY-THE-REWARDS-EXPERIENCE)
 
 
+Chipotle’s new PGA TOUR 2K25 Quests will give players the chance to earn free food and unlock exclusive in-game gear1 The integration launches today with Season 7 of PGA TOUR 2K25 Chipotle will...
 
-May 28, 2026
 
 
 
-[CHIPOTLE'S "SUMMER OF EXTRAS" RETURNS, WITH STREAK-BASED REWARDS AND LOCAL RANKINGS TO GAMIFY THE REWARDS EXPERIENCEOpens in new window](https://newsroom.chipotle.com/2026-05-28-CHIPOTLES-SUMMER-OF-EXTRAS-RETURNS,-WITH-STREAK-BASED-REWARDS-AND-LOCAL-RANKINGS-TO-GAMIFY-THE-REWARDS-EXPERIENCE)
 
+  - [Photos3Opens in new window](https://newsroom.chipotle.com/2026-07-08-CHIPOTLE-BRINGS-REAL-WORLD-FOOD-REWARDS-TO-PGA-TOUR-2K25-IN-FIRST-OF-ITS-KIND-QUEST-INTEGRATION#assets_20295_122868-117)
 
+- [![](https://newsroom.chipotle.com/file.php/181031/Cultivate_Next.jpg?thumbnail=144)Opens in new window](https://newsroom.chipotle.com/2026-07-08-CHIPOTLES-CULTIVATE-NEXT-FUND-INVESTS-IN-SIX-EMERGING-COMPANIES-BUILDING-A-MORE-RESILIENT-FOOD-SYSTEM)
 
 
 
-The 2026 program introduces simplified monthly rewards, local leaderboards and shareable stats designed to engage loyal fans this summer NEWPORT BEACH, Calif., May 28, 2026 /PRNewswire/ --...
+Jul 8, 2026
 
 
 
+[CHIPOTLE’S CULTIVATE NEXT FUND INVESTS IN SIX EMERGING COMPANIES BUILDING A MORE RESILIENT FOOD SYSTEMOpens in new window](https://newsroom.chipotle.com/2026-07-08-CHIPOTLES-CULTIVATE-NEXT-FUND-INVESTS-IN-SIX-EMERGING-COMPANIES-BUILDING-A-MORE-RESILIENT-FOOD-SYSTEM)
 
 
-  - [Photos1Opens in new window](https://newsroom.chipotle.com/2026-05-28-CHIPOTLES-SUMMER-OF-EXTRAS-RETURNS,-WITH-STREAK-BASED-REWARDS-AND-LOCAL-RANKINGS-TO-GAMIFY-THE-REWARDS-EXPERIENCE#assets_20295_122862-117)
 
-- [![](https://newsroom.chipotle.com/image/Graduation_PRAsset__mid.jpg)Opens in new window](https://newsroom.chipotle.com/2026-05-11-CHIPOTLE-REVEALS-AMERICAS-MOST-CHIPOTLE-OBSESSED-COLLEGE-TOWNS-AND-CELEBRATES-THE-CLASS-OF-2026-WITH-GIFT-CARD-OFFER)
 
 
+New investments support entrepreneurs working to advance food systems, climate resilience, regenerative agriculture, supply chain transparency, sustainability measurement and guest experience...
 
-May 11, 2026
 
 
 
-[CHIPOTLE REVEALS AMERICA’S MOST CHIPOTLE-OBSESSED COLLEGE TOWNS AND CELEBRATES THE CLASS OF 2026 WITH GIFT CARD OFFER Opens in new window](https://newsroom.chipotle.com/2026-05-11-CHIPOTLE-REVEALS-AMERICAS-MOST-CHIPOTLE-OBSESSED-COLLEGE-TOWNS-AND-CELEBRATES-THE-CLASS-OF-2026-WITH-GIFT-CARD-OFFER)
 
+  - [Photos1Opens in new window](https://newsroom.chipotle.com/2026-07-08-CHIPOTLES-CULTIVATE-NEXT-FUND-INVESTS-IN-SIX-EMERGING-COMPANIES-BUILDING-A-MORE-RESILIENT-FOOD-SYSTEM#assets_20295_122867-117)
 
+- [![](https://newsroom.chipotle.com/file.php/181019/2XKO-+buy+get+2026+16x9_v2+copy_800.jpg?thumbnail=144)Opens in new window](https://newsroom.chipotle.com/2026-06-16-CHIPOTLE-AND-RIOT-GAMES-SERVE-UP-THEIR-BIGGEST-COLLABORATION-YET-WITH-FIRST-EVER-BRANDED-LOBBY-IN-2XKO)
 
 
 
-New Chipotle U Rewards data highlights top group-order campuses, delivery hotspots and regional flavor trends Starting May 14, the first 10,000 guests who purchase $40 or more in graduation-themed...
+Jun 16, 2026
 
 
 
+[CHIPOTLE AND RIOT GAMES SERVE UP THEIR BIGGEST COLLABORATION YET WITH FIRST-EVER BRANDED LOBBY IN 2XKOOpens in new window](https://newsroom.chipotle.com/2026-06-16-CHIPOTLE-AND-RIOT-GAMES-SERVE-UP-THEIR-BIGGEST-COLLABORATION-YET-WITH-FIRST-EVER-BRANDED-LOBBY-IN-2XKO)
 
 
-  - [Photos1Opens in new window](https://newsroom.chipotle.com/2026-05-11-CHIPOTLE-REVEALS-AMERICAS-MOST-CHIPOTLE-OBSESSED-COLLEGE-TOWNS-AND-CELEBRATES-THE-CLASS-OF-2026-WITH-GIFT-CARD-OFFER#assets_20295_122861-117)
+
+
+
+Building on their 2025 collaboration, Chipotle and Riot Games are teaming up for the biggest 2XKO activation yet, giving players new ways to engage through the 2XKO Real Ones Event presented by...
+
+
+
+
+
+  - [Photos1Opens in new window](https://newsroom.chipotle.com/2026-06-16-CHIPOTLE-AND-RIOT-GAMES-SERVE-UP-THEIR-BIGGEST-COLLABORATION-YET-WITH-FIRST-EVER-BRANDED-LOBBY-IN-2XKO#assets_20295_122866-117)
 
 Show
 
