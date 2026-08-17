@@ -10,7 +10,7 @@ Company
 
 # chipotle Executives \| Leadership Team & Company Leadership
 
-DateAugust 10, 2026
+DateAugust 17, 2026
 
 C
 

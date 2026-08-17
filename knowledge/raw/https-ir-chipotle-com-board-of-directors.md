@@ -39,7 +39,7 @@ Mr. Maw currently serves as Chairman of Board and previously served as Lead Ind
 
 ## Albert S. Baldocchi
 
-Mr. Baldocchi has been self-employed since 2000 as a financial consultant and strategic advisor for, and investor in, a variety of privately-held companies. He holds a Bachelor of Science degree in chemical engineering from the University of California at Berkeley and an MBA from Stanford University.
+Mr. Baldocchi has been self-employed since 2000 as a financial consultant and strategic advisor for, and investor in, a variety of privately-held companies. Mr. Baldocchi’s extensive involvement with restaurant companies for almost 30 years has given him an in-depth knowledge of restaurant company finance, operations and strategy. He also has considerable experience with high-growth companies in the restaurant industry and in other industries, and his experience as a senior investment banker at a number of prominent institutions, including Morgan Stanley, Solomon Brothers and Montgomery Securities, helped him develop solid capabilities in accounting and finance as well. He holds a Bachelor of Science degree in chemical engineering from the University of California at Berkeley and an MBA from Stanford University.
 
 - ![](https://ir.chipotle.com/image/HeadshotsOnWood_BoardOfDirectors_High_ScottBoatwright-320x320px.jpg)
 
