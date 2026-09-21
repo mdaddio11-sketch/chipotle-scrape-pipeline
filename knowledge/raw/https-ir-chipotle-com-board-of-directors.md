@@ -1,30 +1,10 @@
 # Source: https://ir.chipotle.com/board-of-directors
 
-### Your Privacy Preferences
-
-If you would like to submit a Data Subject Request, please click here: [Data Subject Request Form](https://www.chipotle.com/privacy-request)
-
-We use cookies to enhance your website and app experience, improve functionality and support our marketing efforts. You can manage your cookie preferences by clicking “Do Not Sell or Share My Personal Information / Opt Out.” If you wish to opt out of Chipotle’s sharing your personal information directly with third parties for the purpose of targeted advertising, please click on “Your Privacy Choices” link in the footer of our website and complete the US Consumer Data Request Form found under the Data Subject Rights tab. To learn more, please review our [Cookie Policy](https://www.chipotle.com/cookie-policy) and our visit our recently updated [Privacy Policy,](https://www.chipotle.com/privacy-policy) [including California Privacy Rights](https://www.chipotle.com/privacy-policy). By continuing to access or use our website, you agree to our [Terms of Use](https://www.chipotle.com/terms-of-use) including the arbitration and class action waiver.
-
-Do Not Sell or Share My Personal Information / Opt OutAccept AllPrivacy Preferences
-
 # Board of Directors
 
 The following members make up the Chipotle Board of Directors.  Please select an individual member below to learn more about them and the committees they contribute to.
 
 - ![](https://ir.chipotle.com/image/HeadshotsOnWood_BoardOfDirectors_High_ScottMaw-320x320px.jpg)
-
-
-
-
-
-## Scott Maw
-
-
-
-Mr. Maw currently serves as Chairman of Board and previously served as Lead Independent Director from May 2021 to November 2024. He served as a Managing Director at WestRiver Group, a private equity investment firm, from August 2019 to August 2020 and as a Senior Advisor from August 2020 until February 2021. He was Executive Vice President and Chief Financial Officer at Starbucks Corporation, a global roaster and retailer of specialty coffee, from 2014 until his retirement at the end of 2018. He also was Senior Vice President, Corporate Finance at Starbucks from 2012 to 2013, and Senior Vice President and Global Controller from 2011 to 2012. From 2010 to 2011, he was Senior Vice President and CFO of SeaBright Holdings, Inc., a specialty workers’ compensation insurer. From 2008 to 2010, he was Senior Vice President and CFO of the Consumer Bank at JP Morgan Chase & Company. Prior to this, Mr. Maw held leadership positions in finance at Washington Mutual, Inc. from 2003 to 2008, and GE Capital from 1994 to 2003. Prior to joining GE Capital, Mr. Maw worked in KPMG’s audit practice from 1990 to 1994. He currently serves as a member of the boards of directors of Dutch Bros Inc. and Avista Corporation and serves on the Board of Trustees of Gonzaga University. He previously served on the board of directors of Alcon Inc. Mr. Maw holds a Bachelor of Business Administration in Accounting from Gonzaga University.
-
-- ![](https://ir.chipotle.com/image/HeadshotsOnWood_BoardOfDirectors_High_AlBaldocchi-320x320px.jpg)
 
 
 
@@ -36,6 +16,15 @@ Mr. Maw currently serves as Chairman of Board and previously served as Lead Ind
 
 
     [Audit and Risk Committee](https://ir.chipotle.com/board-committees?item=1)
+
+## Scott Maw
+
+Mr. Maw currently serves as Chairman of Board and previously served as Lead Independent Director from May 2021 to November 2024. He served as a Managing Director at WestRiver Group, a private equity investment firm, from August 2019 to August 2020 and as a Senior Advisor from August 2020 until February 2021. He was Executive Vice President and Chief Financial Officer at Starbucks Corporation, a global roaster and retailer of specialty coffee, from 2014 until his retirement at the end of 2018. He also was Senior Vice President, Corporate Finance at Starbucks from 2012 to 2013, and Senior Vice President and Global Controller from 2011 to 2012. From 2010 to 2011, he was Senior Vice President and CFO of SeaBright Holdings, Inc., a specialty workers’ compensation insurer. From 2008 to 2010, he was Senior Vice President and CFO of the Consumer Bank at JP Morgan Chase & Company. Prior to this, Mr. Maw held leadership positions in finance at Washington Mutual, Inc. from 2003 to 2008, and GE Capital from 1994 to 2003. Prior to joining GE Capital, Mr. Maw worked in KPMG’s audit practice from 1990 to 1994. He currently serves as a member of the boards of directors of Dutch Bros Inc. and Avista Corporation and serves on the Board of Trustees of Gonzaga University. He previously served on the board of directors of Alcon Inc. Mr. Maw holds a Bachelor of Business Administration in Accounting from Gonzaga University.
+
+- ![](https://ir.chipotle.com/image/HeadshotsOnWood_BoardOfDirectors_High_AlBaldocchi-320x320px.jpg)
+
+
+
   - ![Member](https://ir.chipotle.com/images/webdriver/committees/member.png)
 
 
@@ -189,6 +178,19 @@ Mr. Weinstein is the Chief Executive Officer and a member of the Board of Direc
 ## Mary Winston
 
 Ms. Winston is the Founder and President of WinsCo Enterprises, Inc., a consulting firm providing financial and board governance advisory services since 2016. She served as interim Chief Executive Officer of Bed Bath & Beyond from May 2019 to November 2019, and as Executive Vice President and Chief Financial Officer of Family Dollar Stores, a leading discount retailer, from 2012 until it was acquired by Dollar Tree in 2015.  Prior to that, Ms. Winston served as Senior Vice President and Chief Financial Officer of Giant Eagle, Inc., a supermarket chain from 2008 to 2012, and as Executive Vice President and Chief Financial Officer of Scholastic Corporation, a global children’s publishing, education and media company from 2004 to 2007. Ms. Winston currently serves on the Boards of Directors of TD Bank Group and Northrop Grumman Corporation. Ms. Winston previously served on Boards of Directors of Acuity Brands, Inc., Bed, Bath & Beyond, Domtar Corporation, Plexus Corporation and Supervalu Inc. She also serves on the Board of Directors of Toronto-Dominion Bank’s U.S. subsidiary and as Chair of the Board of Directors of the National Association of Corporate Directors (NACD). She holds a Bachelor’s degree in Accounting from the University of Wisconsin, an MBA in Finance, Marketing and International Business from Northwestern University’s Kellogg Graduate School, and is a CPA, as well as an NACD Board Leadership Fellow.
+
+- ![](https://ir.chipotle.com/image/Sabir_Sami_320x320.jpg)
+
+
+
+
+
+## Sabir Sami
+
+
+
+Sabir Sami brings more than 30 years of global consumer and restaurant industry experience, including 16 years at Yum! Brands Inc., where he held a series of senior leadership roles across KFC, Taco Bell and Habit Burger & Grill. Most recently, Mr. Sami served as chief executive officer of KFC from January 2022 to February 2025, with global responsibility for the brand's strategy and performance and reporting directly to the chief executive officer of Yum! Brands. Previously, he served as KFC's chief operating officer and managing director of KFC Asia, leading the brand's global operations team while overseeing markets across Thailand, India, Central Asia and Greater Asia. Mr. Sami also served as managing director of KFC's Middle East, North Africa, Pakistan and Turkey markets. During his tenure at Yum! Brands, he held leadership roles across all three of the company's brands, including serving as general manager of Yum! Canada and in general manager roles for KFC's Canada and Turkey businesses. Before joining Yum! Brands in 2009, Mr. Sami held various leadership roles at Procter & Gamble, The Coca-Cola Co. and Reckitt Benckiser. In addition to his role at Chipotle, Mr. Sami serves as a director of Sami Advisory, a business consulting firm he founded in August 2025. He also serves on the Board of Directors of Save the Children Canada. Mr. Sami holds an MBA from the University of Karachi in Pakistan.
+
 
 - [print](https://ir.chipotle.com/board-of-directors#print "print")
 - [email](https://ir.chipotle.com/board-of-directors#email "email")
