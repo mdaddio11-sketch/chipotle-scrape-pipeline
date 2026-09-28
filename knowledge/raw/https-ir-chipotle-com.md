@@ -30,9 +30,9 @@ Jul 29, 2026
 
 NYSECMG
 
-$33.43
+$31.33
 
--$0.08
+-$0.68
 
 Currency in USD.
 
