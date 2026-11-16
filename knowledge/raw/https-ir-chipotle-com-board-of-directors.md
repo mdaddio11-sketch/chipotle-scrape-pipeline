@@ -1,13 +1,5 @@
 # Source: https://ir.chipotle.com/board-of-directors
 
-### Your Privacy Preferences
-
-If you would like to submit a Data Subject Request, please click here: [Data Subject Request Form](https://www.chipotle.com/privacy-request)
-
-We use cookies to enhance your website and app experience, improve functionality and support our marketing efforts. You can manage your cookie preferences by clicking “Do Not Sell or Share My Personal Information / Opt Out.” If you wish to opt out of Chipotle’s sharing your personal information directly with third parties for the purpose of targeted advertising, please click on “Your Privacy Choices” link in the footer of our website and complete the US Consumer Data Request Form found under the Data Subject Rights tab. To learn more, please review our [Cookie Policy](https://www.chipotle.com/cookie-policy) and our visit our recently updated [Privacy Policy,](https://www.chipotle.com/privacy-policy) [including California Privacy Rights](https://www.chipotle.com/privacy-policy). By continuing to access or use our website, you agree to our [Terms of Use](https://www.chipotle.com/terms-of-use) including the arbitration and class action waiver.
-
-Do Not Sell or Share My Personal Information / Opt OutAccept AllPrivacy Preferences
-
 # Board of Directors
 
 The following members make up the Chipotle Board of Directors.  Please select an individual member below to learn more about them and the committees they contribute to.
@@ -115,9 +107,11 @@ Ms. Fili-Krushel served as Chief Executive Officer of Coqual (formerly Center fo
 
 ## Laura Fuentes
 
-Ms. Fuentes is the Executive Vice President and Chief Human Resources Officer of Hilton Worldwide Holdings Inc., a role she’s held since 2020, and is head of Hilton Supply Management. Prior to that, she served as Chief Talent and Diversity Officer and in several other executive roles at Hilton since joining the company in 2013. For six years, Ms. Fuentes served in various corporate strategy and Human Resources roles at Capital One Financial Corporation. Before that, she worked at McKinsey & Company advising clients across various industries in their Madrid, New York, and Washington, D.C offices. She serves on the board of the nonprofit organization Make-a-Wish Mid-Atlantic and on the Community Council for the Arlington Free Clinic. Additionally, she represents Hilton on the Tent US Advisory Council for refugees and serves on the board for the University of Virginia McIntire School of Commerce.
+Ms. Fuentes is the Executive Vice President and Chief Brand Officer of Hilton Worldwide Holdings Inc. She previously held the position of Executive Vice President and Chief Human Resources Officer, beginning in 2020, and led Hilton Supply Management. Prior to that, she served as Chief Talent and Diversity Officer and in several other executive roles at Hilton since joining the company in 2013. For six years, Ms. Fuentes served in various corporate strategy and Human Resources roles at Capital One Financial Corporation. Before that, she worked at McKinsey & Company, advising clients across various industries in its Madrid, New York, and Washington, D.C. offices.
 
-Originally from Spain, Ms. Fuentes holds a Bachelor of Science from the University of Virginia, a Masters of Science in Structural Engineering from the University of Texas at Austin and an MBA from Columbia University.
+Ms. Fuentes is a board member of the nonprofit organization Make-A-Wish Mid-Atlantic and a member of the Community Council for the Arlington Free Clinic. Additionally, she represents Hilton on the Tent US Advisory Council for refugees and sits on the board of the University of Virginia McIntire School of Commerce.
+
+Originally from Spain, Ms. Fuentes holds a Bachelor of Science from the University of Virginia, a Master of Science in Structural Engineering from the University of Texas at Austin, and an MBA from Columbia University.
 
 - ![](https://ir.chipotle.com/image/HeadshotsOnWood_BoardOfDirectors_High_MauricioGutierrez-320x320px.jpg)
 
@@ -233,5 +227,3 @@ Cookies are used to support and manage your interactions with our website and pr
 OKAYPRIVACY POLICY
 
 (opens in a new window)
-
-Twitter Widget Iframe
